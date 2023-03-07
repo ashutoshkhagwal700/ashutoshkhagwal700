@@ -4,5 +4,5 @@
 - 🤔 I’m looking for help with ...Internship
 - 💬 Ask me about ...C | HTML | CSS
 - 📫 How to reach me: ...ashutoshkhagwal700@gmail.com
-- ⚡ Fun fact: ...I am Funny 
+- ⚡ Fun fact: ...I am Funny😁😛 
 
